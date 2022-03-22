@@ -46,3 +46,13 @@
 | --------------------- | ------------------------------------- |
 | July 2017 – for now   | Freelancer at event sphere.           |
 | June 2013 – July 2017 | Sales manager at different companies. |
+
+## About me
+
+> Extremely motivated to constantly develop my skills and grow professionally. I am confident in my ability to come up with interesting ideas and my powers for profitable  
+>  My specialty allows showing creativity and an exact approach to solving problems.
+> I do well with tasks that only increased my interest.
+> I am a conscientious person who works hard and pays great attention to small objects. I’m a flexible and quick learner, strongly motivated and enthusiastic person and most importantly, I’m self-disciplined
+> I able to work independently and in a team. Strong verbal and written communication skills. Able to execute and prioritize a number of tasks simultaneously.
+> I ‘m ready to achieve my goals, to do my best to realize what I‘ve planned to become a good professional.
+> I’m sure that I’ve found a way to my own happiness.
