@@ -47,7 +47,7 @@
 | July 2017 – for now   | Freelancer at event sphere.           |
 | June 2013 – July 2017 | Sales manager at different companies. |
 
-## About me
+## About
 
 > Extremely motivated to constantly develop my skills and grow professionally. I am confident in my ability to come up with interesting ideas and my powers for profitable  
 >  My specialty allows showing creativity and an exact approach to solving problems.
